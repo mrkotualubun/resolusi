@@ -1,0 +1,2 @@
+# resolusi
+utk mencatat rencana
